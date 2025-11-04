@@ -1,1 +1,1 @@
-# https-github.com-L3xATM-l3xatm-static
+ © 2025 Lex | Barcelona
